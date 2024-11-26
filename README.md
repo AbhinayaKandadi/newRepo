@@ -1,0 +1,3 @@
+# newRepo
+kjdneidx
+denji
